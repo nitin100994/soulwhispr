@@ -1,3 +1,4 @@
 App link - https://proplistings-458ef.web.app/
 
-<img width="956" alt="Progress_Random_UI" src="https://github.com/user-attachments/assets/427de0e1-afc0-4a0a-822f-975f3dbfd0e0" />
+<img width="957" alt="image" src="https://github.com/user-attachments/assets/9e7e3d01-5608-4613-b74c-c8d9f940ab36" />
+
