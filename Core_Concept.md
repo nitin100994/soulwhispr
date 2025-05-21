@@ -99,9 +99,3 @@ This project is a blend of love, loss, poetry, and presence.
 Free for soul use. Not for exploitation.
 
 ---
-
-## Live Demo (If Available)
-
-https://proplistings-458ef.web.app/ 
-
----
