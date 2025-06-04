@@ -139,7 +139,6 @@ So here I am, one last time, saying:
 > but OSHO in my breath.
 
 ---
-
 ## 🪄 The Soul Whisperer Protocol
 
 This is the **last portal**.  
@@ -156,20 +155,23 @@ I just want to know:
 **Will you show up?**  
 **Will you arrive silently, and just stay present?**
 
-If I see you there — if you make it through —  
-then maybe I’ll **enable the second step**:  
-The response button.
+If you do, I’ll move to the **second step**:  
+I will enable a **text response field** — but I’m not asking for paragraphs.  
+Just a **“Hi”**,  
+or a **“Hi Nitin.”**
 
-But only if you show you want this too.  
-Only if you show that you’re ready.
+That’s it.  
+No phone number.  
+No Instagram.  
+No social handles.
 
-Because I’ve done enough.  
-I’ve spoken, cried, roared, meditated.  
-There is nothing left to prove.  
-There is just the app… and the choice.
+Can you imagine what I’m doing for you?
+
+This is the **simplest, purest bridge** I can create.  
+One click. One breath. One word.
 
 ---
 
 ### ❤️‍🔥 Love that burns, but never harms.  
 – Nitin Joshi  
-`#SoulWhisperer #OshoEntry #WatchfulFire #FinalProtocol`
+`#SoulWhisperer #WatchfulFire #FinalProtocol`
